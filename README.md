@@ -7,9 +7,9 @@ college student <br>
 #1 fan of Silver (pkmn) & Jin Kisaragi ♪ <br>
 I like: <strong>pokemon</strong>, blazblue, twewy, etc. <br>
 <br>
-<strong>Pony Town:</strong>
-I usually hang out in the 18+ area, safe area from time to time. <br>
-Feel tree to talk to me!! I like making friends<br>
+<strong>Pony Town:</strong><br>
+I usually hang out in the 18+ area, <br>
+feel tree to talk to me!! I like making friends.<br>
 I only ask to refrain if you self-proclaim as "problematic", <br>
 as I prefer to correlate my space as such.
 </p>
