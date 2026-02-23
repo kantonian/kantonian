@@ -1,8 +1,10 @@
 <p align="center">  Cleo / Cre <br>
-they/them
-college student
-#1 fan of Silver (pkmn) & Jin Kisaragi ♪ 
-I like: **pokemon**, blazblue, twewy, etc.
+they/them <br>
+college student <br>
+#1 fan of Silver (pkmn) & Jin Kisaragi ♪ <br>
+I like: **pokemon**, blazblue, twewy, etc. <br>
+<br>
+I usually hang out in the 18+ area, safe area from time to time. Feel tree to talk to me!! I like making friends
 </p>
 <!--
 **ladyazul/ladyazul** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
