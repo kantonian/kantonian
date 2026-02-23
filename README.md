@@ -9,9 +9,7 @@ I like: <strong>pokemon</strong>, blazblue, twewy, etc. <br>
 <br>
 <strong>Pony Town:</strong><br>
 I usually hang out in the 18+ area, <br>
-feel tree to talk to me!! I like making friends.<br>
-I only ask to refrain if you self-proclaim as "problematic", <br>
-as I prefer to correlate my space as such.
+feel tree to talk to me!! I like making friends.
 </p>
 <!--
 **ladyazul/ladyazul** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
