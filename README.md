@@ -1,4 +1,4 @@
--> Decided to make one for ponytown <-
+Decided to make one for ponytown
 - U may copy any of my ponies idc . love for all.
 - I'm usually on the 18+ server, I play on the safe server sometimes too.
 - If we hit it off u may ask for my discord!
