@@ -1,10 +1,9 @@
-Decided to make one for ponytown
-- U may copy any of my ponies idc . love for all.
-- I'm usually on the 18+ server, I play on the safe server sometimes too.
-- If we hit it off u may ask for my discord!
-- My interests are: **pokemon**, blazblue, and twewy. Obv there's more but I can talk about these for hours, esp pokemon.
-
-I love to meet new ppl!! Talk to me!
+<p align="center">  Cleo / Cre 
+they/them
+college student
+#1 fan of Silver (pkmn) & Jin Kisaragi ♪ 
+I like: **pokemon**, blazblue, twewy, etc.
+</p>
 <!--
 **ladyazul/ladyazul** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
