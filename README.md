@@ -1,4 +1,6 @@
-<center><img src=https://i.postimg.cc/c4MJ9GMf/FOg-H5P4a-QAEX7Qu.jpg width=100px></center>
+<div align="center">
+  <img src="https://i.postimg.cc/c4MJ9GMf/FOg-H5P4a-QAEX7Qu.jpg" width="151">
+</div>
 <p align="center">  Cleo / Cre <br>
 they/them <br>
 college student <br>
