@@ -1,4 +1,4 @@
-<p align="center">  Cleo / Cre <br>
+<p align="center" color="red">  Cleo / Cre <br>
 they/them <br>
 college student <br>
 #1 fan of Silver (pkmn) & Jin Kisaragi ♪ <br>
