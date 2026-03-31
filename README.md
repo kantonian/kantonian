@@ -5,7 +5,8 @@
 they/them <br>
 college student <br>
 #1 fan of Silver (pkmn) & Jin Kisaragi ♪ <br>
-My favs: <strong>pokemon</strong>, blazblue, twewy, beastars, etc. <br>
+My favs: <strong>pokemon</strong>, blazblue, twewy, 
+  <br> beastars, etc. <br>
 <br>
 <strong>Pony Town:</strong><br>
 I usually hang out in the 18+ area, <br>
