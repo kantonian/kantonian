@@ -8,9 +8,6 @@ college student <br>
 I like: <strong>pokemon</strong>, blazblue, twewy, <br>
 persona, beastars, and more!
 <br>
-Since you asked so nicely: my favorite pokemon regions are alola first and foremost, johto second, and kanto third! <br>My fav 
-pokemon is Raichu. Fav persona games are p3(reload) and p2. 
-<br>
 <br>
 <strong>Pony Town:</strong><br>
 I usually hang out in the 18+ area, <br>
