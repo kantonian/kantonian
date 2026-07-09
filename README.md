@@ -11,7 +11,7 @@ persona, beastars, and more!
 <br>
 <strong>Pony Town:</strong><br>
 I usually hang out in the 18+ area, <br>
-feel tree to talk to me!! I like making friends.
+feel free to talk to me!! I like making friends.
 </p>
 <!--
 **ladyazul/ladyazul** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
