@@ -2,7 +2,7 @@
   <img src="https://i.postimg.cc/c4MJ9GMf/FOg-H5P4a-QAEX7Qu.jpg" width="150"><img src="https://i.postimg.cc/Gpz7qtHC/FOg-H5P1ac-AUKe1i.jpg" width="150">
 </div>
 <p align="center"> 
-[my strawpage](https://heartgold.straw.page/)   
+[ strawpage ,](https://2mendthesun.straw.page)
 </p>
 <!--
 **ladyazul/ladyazul** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
