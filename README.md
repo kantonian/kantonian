@@ -6,7 +6,7 @@ they/them <br>
 college student <br>
 #1 fan of Silver (pkmn) & Jin Kisaragi ♪ <br>
 I like: <strong>pokemon</strong>, blazblue, twewy, <br>
-persona, beastars, and more!
+persona, beastars, nakamura-kun
 <br>
 <br>
 <strong>Pony Town:</strong><br>
