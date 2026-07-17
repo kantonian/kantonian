@@ -2,7 +2,6 @@
   <img src="https://i.postimg.cc/c4MJ9GMf/FOg-H5P4a-QAEX7Qu.jpg" width="150"><img src="https://i.postimg.cc/Gpz7qtHC/FOg-H5P1ac-AUKe1i.jpg" width="150">
 </div>
 <p align="center"> 
-https://heartgold.straw.page/ <br>
   <br>
   <strong>for Pony Town:</strong><br>
   I'm usually in the 18+ area w/ no fixed location,<br>
